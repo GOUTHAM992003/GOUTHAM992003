@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GOUTHAM992003
-- 👀 Ai-Ml enthusias
+- 👀 Ai-Ml enthusiast
 - 💞️ I’m looking to collaborate Ai-Ml communities
 - 📫 How to reach me gmail:-goutham64840@gmail.com
 <!---
