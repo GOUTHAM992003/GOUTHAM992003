@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @GOUTHAM992003
-- 👀 Ai-Ml enthusiast
-- 💞️ I’m looking to collaborate Ai-Ml communities
+- 👀 Ai- Research Scientist.
 - 📫 How to reach me gmail:-goutham64840@gmail.com
 <!---
 GOUTHAM992003/GOUTHAM992003 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
